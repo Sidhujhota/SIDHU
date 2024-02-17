@@ -1,4 +1,4 @@
-        「 🕊️⃝‌ٖٖٖٖ ‌ٖٖٖٖٖ🦋𑲭𑲭𑲭𑲭𑲭𑲭𑲭𑲭𑲭𑲭𑲭𑲭𑲭𑲭𑲭𑲭𝐁α∂ 𝐌υи∂α🌸❤️ᥫ᭡፝֟፝֟ 」
+        「 🕊️⃝‌ٖٖٖٖ ‌ٖٖٖٖٖ🦋𑲭𑲭𑲭𑲭𑲭𑲭𑲭𑲭𑲭𑲭𑲭𑲭𑲭𑲭𑲭𑲭Sidhu🌸❤️ᥫ᭡፝֟፝֟ 」
 </h2>
 
 <p align="center"><a href="https://t.me/II_BAD_BBY_II"><img src="https://graph.org/file/214a0a41f7d75c0f90758.jpg"></a></p>
@@ -15,7 +15,7 @@
 
 
 
-2 ✧ ʀᴇᴀʟ ɪᴅ   » @II_BAD_MUNDA_II  🌸
+2 ✧ ʀᴇᴀʟ ɪᴅ   » @i_am_champion 🌸
 
 
 
@@ -33,13 +33,13 @@
 
 
 
-5 ✧ ɢʀᴏᴜᴘ ᴍᴀɴᴀɢᴇᴍᴇɴᴛ » 😈 @BAD_BBY_02_BOT 😈
+5 ✧ ɢʀᴏᴜᴘ ᴍᴀɴᴀɢᴇᴍᴇɴᴛ » 😈 @Sidhusmusicbot 😈
 
 
 
 
 
-6 ✧ ᴍᴜsɪᴄ ʙᴏᴛ » 🎸 @MissBroken_Bot 🎸
+6 ✧ ᴍᴜsɪᴄ ʙᴏᴛ » 🎸 @Sidhumusicbot🎸
 
 
 
@@ -58,31 +58,31 @@
 
 
 
-9 ✧ ᴄʜᴀᴛ ʙᴏᴛ » 🌉 @KaurSardarni_bot 🌉
+9 ✧ ᴄʜᴀᴛ ʙᴏᴛ » 🌉 @@Sidhuxuserbot 🌉
 
 
 
 
 
-10 ✧ ᴅᴘᴢ ᴄʜᴀɴɴᴇʟ » 🥺 @BEAUTIFUl_DPZ 🥺
+10 ✧ ᴅᴘᴢ ᴄʜᴀɴɴᴇʟ » 🥺 @SUKOXN 🥺
 
 
 
 
 
-11 ✧ ғᴇʟʟɪɴɢ ʙᴀᴅ ᴄʜᴀɴɴᴇʟ » 😈 @FELLINGS_BAD 😈
+11 ✧ ғᴇʟʟɪɴɢ ʙᴀᴅ ᴄʜᴀɴɴᴇʟ » 😈 @SIDHUJA_TT 😈
 
 
 
 
 
-12 ✧ ᴄʜᴀᴛ ɢʀᴏᴜᴘ » 👼 @II_CHAT_HUB_II 😈
+12 ✧ ᴄʜᴀᴛ ɢʀᴏᴜᴘ » 👼 @DALDAAR 😈
 
 
 
 
 
-13 ✧ ᴜᴘᴅᴀᴛᴇ ɢʀᴏᴜᴘ » 👼 @ll_THE_BAD_BOT_ll 😈
+13 ✧ ᴜᴘᴅᴀᴛᴇ ɢʀᴏᴜᴘ » 👼 @PUNJXB 😈
 
 
 
@@ -93,7 +93,7 @@
        ਤੇਰੀ ਔਕਾਤ🤪ਨਾਲੋਂ ਵੱਡਾ ਤਾਂ ਅਸੀਂ 😘ਦਿਲ ਰੱਖਦੇ ਅਾ😈◆
 
 
-#𝐁αԃ 😎
+#sidhu 😎
 
 
 
